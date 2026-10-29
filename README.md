@@ -22,7 +22,7 @@ My current interests include \*\*Artificial Intelligence, Machine Learning, Agen
 
 
 
-\* 🎓 Final-year university student at \*\*Mbarara University of Science and Technology (MUST)\*\*
+\* 🎓 Final-year university student at \*\*Mbeya University of Science and Technology (MUST)\*\*
 
 \* 💻 Interested in \*\*Software Engineering and Full-Stack Development\*\*
 
